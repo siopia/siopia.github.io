@@ -15,7 +15,7 @@
 
 **St. Jude Thaddeus**
 ![St. Jude Thaddeus](https://user-images.githubusercontent.com/118333734/202452120-ee5fd799-c2fb-44b6-b65f-00cceafd4b64.png)
-*—St. Jude Thaddeus is the Patron Saint of Hope and impossible causes and one of Jesus' original twelve Apostles. He is also the patron saint of my parish*
+*—St. Jude Thaddeus is the Patron Saint of Hope and impossible causes and one of Jesus' original twelve Apostles. He is also the patron saint of my parish.*
 
 **Thankful Leper**
 ![thankful leper](https://user-images.githubusercontent.com/118333734/202452237-57dc55a0-f264-4554-aa7c-f5591be0c229.png)
