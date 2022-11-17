@@ -3,7 +3,7 @@
 >Hello! *I'm Pia, a student of Ateneo de Naga University, aesthete and artist*
 
 `View some of my creations:`
-[Pia's Artworks for SJTP Parish Bulletin⁠—Mandylion](https://drive.google.com/drive/folders/18WR0FAunmyHOkwyDFGst7SoGH-M0TD3M?usp=sharing)
+[Pia's Artworks for the SJTP Bulletin⁠—Mandylion](https://drive.google.com/drive/folders/18WR0FAunmyHOkwyDFGst7SoGH-M0TD3M?usp=sharing)
 
 **Christ the King**
 ![Christ the King](https://user-images.githubusercontent.com/118333734/202451758-02763d86-07c9-448c-a6f8-ce18be2f3a1d.jpg)
