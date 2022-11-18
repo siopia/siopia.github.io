@@ -25,5 +25,10 @@
 ![watchful servant](https://user-images.githubusercontent.com/118333734/202452260-a4d5d2e0-2a98-410b-9409-aeebad85ae98.png)
 *—The message of this parable of the watchful servants is very clear: be ready for Jesus' return because he will come when it is least expected.*
 
+`Find me on:`
+[Gbox](dasguit@gbox.adnu.edu.ph)
+[Instagram](https://www.instagram.com/dvsx.oxo/)
+[Facebook](https://www.facebook.com/dannah.saguit.02)
+
 `Some Wise Words`
 >Artistic talent is a gift from God and whoever discovers it in himself has a certain obligation: to know that he cannot waste this talent, but must develop it.
