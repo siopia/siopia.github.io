@@ -26,7 +26,7 @@
 *—The message of this parable of the watchful servants is very clear: be ready for Jesus' return because he will come when it is least expected.*
 
 `Art playlist: What I listen to while making art`
-https://open.spotify.com/playlist/3rM0yP2viGuGLPsrKbp3Bs?si=6b1e41e7d0774121
+
 
 `Find me on:`
 [Gbox](dasguit@gbox.adnu.edu.ph)
