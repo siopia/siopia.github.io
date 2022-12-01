@@ -26,7 +26,7 @@
 *—The message of this parable of the watchful servants is very clear: be ready for Jesus' return because he will come when it is least expected.*
 
 `And more illustrations:`
-[Pia's Random Sketches and Wips]([https://drive.google.com/drive/folders/1R8WJEmneEbz3oDAwc6piZglRAMsvlH7o](https://drive.google.com/drive/folders/1RESa2u5BY2loX9053mN5Ey0RGBmCaOw_))
+[Pia's Random Sketches and Wips](https://drive.google.com/drive/folders/1RESa2u5BY2loX9053mN5Ey0RGBmCaOw_)
 
 **Shenhe**
 ![shenhe](https://user-images.githubusercontent.com/118333734/205039830-84d93b19-66a1-4277-b6d1-3d7933550dad.png)
