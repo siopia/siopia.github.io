@@ -38,7 +38,7 @@
 
 **Macky & Pia**
 ![macky   pia](https://user-images.githubusercontent.com/118333734/205042680-8c28343e-cc40-4d48-a120-3ba0ff9cb7a3.png)
-*—I drew this piece for the most special person in my life, combined the features of an Aranara and our own features for fun.*
+*—I drew this piece for the most special person in my life, combined the features of an Aranara (character from Genshin Impact) and our own features for fun.*
 
 **Work in Progress (WIP)**
 ![wip](https://user-images.githubusercontent.com/118333734/205044212-e5089906-ef6a-4805-b160-a839a35a7545.png)
