@@ -30,15 +30,15 @@
 
 **Shenhe**
 ![shenhe](https://user-images.githubusercontent.com/118333734/205039830-84d93b19-66a1-4277-b6d1-3d7933550dad.png)
-*—From my former favorite game, Genshin Impact, one of my fave characters*
+*—From my former favorite game, Genshin Impact, one of my fave characters. As well as one of my favorite works.*
 
 **Original Character**
 ![oc 1](https://user-images.githubusercontent.com/118333734/205040588-27964043-8e30-442e-b073-b9428a2f84d0.png)
-*—A work I made for a club at my former school, the prompt was "Artsona"*
+*—A work I made for a club at my former school, the prompt was "Artsona".*
 
 **Macky & Pia**
 ![macky   pia](https://user-images.githubusercontent.com/118333734/205042680-8c28343e-cc40-4d48-a120-3ba0ff9cb7a3.png)
-*—I drew this piece for the most special person in my life, combined the features of an Aranara and our own features for fun*
+*—I drew this piece for the most special person in my life, combined the features of an Aranara and our own features for fun.*
 
 **Work in Progress (WIP)**
 ![wip](https://user-images.githubusercontent.com/118333734/205044212-e5089906-ef6a-4805-b160-a839a35a7545.png)
